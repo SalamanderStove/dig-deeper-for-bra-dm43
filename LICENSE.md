@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots Script no-ban is the best dig deeper for brainrots Script, featuring auto-collect and auto-upgrade. Safe and powerful for
 
 
 
